@@ -1,0 +1,1 @@
+# ia_grupo_tres_clasificacion_rocas_minas
